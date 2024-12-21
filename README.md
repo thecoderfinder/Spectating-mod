@@ -23,7 +23,7 @@ it's a fun mod to use for a whole bunch of stuff
 
 ## dll
 
-_Welcome to GitHub Pages and Jekyll :tada:!_
+_ the mod is a casting mod like TTT tts use :tada:!_
 
-h.
+
 
