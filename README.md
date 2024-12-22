@@ -23,7 +23,9 @@ it's a fun mod to use for a whole bunch of stuff
 
 ## dll
 
-_ the mod is a casting mod like TTT tts use :tada:!_
-
+_ the mod is a casting mod like TTT and tts use :tada:!_
+warning if the mod doesn't work, click this YouTube link and try this
+YouTube link is not out yet
+it will be out around 12:55
 
 
