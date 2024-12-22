@@ -25,8 +25,7 @@ it's a fun mod to use for a whole bunch of stuff
 
 _ the mod is a casting mod like TTT and tts use :tada:!_
 warning if the mod doesn't work, click this YouTube link and try this
-YouTube link is not out yet
-it will be out around 12:55
+YouTube link https://youtu.be/Wlrx4H15WlQ?si=ENhd8jULpNJvBfzx
 ## the gorilla tag version
 if you don't know what I mean, I mean, what was the DLL updated so it can work
 
