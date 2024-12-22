@@ -27,5 +27,8 @@ _ the mod is a casting mod like TTT and tts use :tada:!_
 warning if the mod doesn't work, click this YouTube link and try this
 YouTube link is not out yet
 it will be out around 12:55
+## the gorilla tag version
+if you don't know what I mean, I mean, what was the DLL updated so it can work
 
+2024 Christmas update liv come out
 
