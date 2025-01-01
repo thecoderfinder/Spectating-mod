@@ -29,5 +29,5 @@ YouTube link https://youtu.be/Wlrx4H15WlQ?si=ENhd8jULpNJvBfzx
 ## the gorilla tag version
 if you don't know what I mean, I mean, what was the DLL updated so it can work
 
-2024 Christmas update liv come out
+2025 Christmas update Fireworks come out
 
